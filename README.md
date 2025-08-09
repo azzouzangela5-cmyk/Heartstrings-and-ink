@@ -1,2 +1,2 @@
-# Heartstrings-and-ink
+# Heartstrings-and-ink shop
 Poems letters memories songs
